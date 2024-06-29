@@ -1,0 +1,1 @@
+This is my first project, there are things that bother me in my community and I believe that this will help me, my friends and potencially other users to lead satisfying, healthy life with adventures and community support.
